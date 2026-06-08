@@ -1,0 +1,1 @@
+# LandslideRisk-AI-Sistem-Deteksi-Dini-Pemetaan-Area-Rawan-Tanah-Longsor-
